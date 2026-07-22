@@ -13,4 +13,4 @@ https://shantanugupta.framer.ai
 
 ## LinkedIn
 
-https://www.linkedin.com/in/shantanugupta99/
+https://www.linkedin.com/in/heyshantanu/
